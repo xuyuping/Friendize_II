@@ -21,6 +21,6 @@
 
 ![](./images/Main.jpg)
 
-Customized degign for firends.
+Customized design for friends.
 
-Repair the Maker road and hope it to be a new start.
+Repair my maker road and hope it to be a new start.
